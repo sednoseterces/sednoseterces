@@ -1,1 +1,2 @@
-![image](https://github.com/sednoseterces/sednoseterces-/assets/71658981/3bbfa72e-2c41-447d-88f4-e9854e04fa6c)
+![image](https://github.com/sednoseterces/sednoseterces-/assets/71658981/754b94c1-7d03-4956-a247-6082a51d5653)
+
