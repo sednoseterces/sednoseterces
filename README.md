@@ -1,3 +1,4 @@
 <div align="center">
- ![Picsart_24-05-20_01-49-36-564](https://github.com/sednoseterces/sednoseterces/assets/71658981/e8b7a4c5-c65b-4974-875e-4069b195e738)
+ ![Picsart_24-05-20_01-49-36-564](https://github.com/sednoseterces/sednoseterces/assets/71658981/60fa7b9c-8a29-4302-826e-b5a9925f4eed)
+
 </div>
