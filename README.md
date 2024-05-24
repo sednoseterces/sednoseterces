@@ -5,7 +5,7 @@
   <sub> **KAL** / _GILTZ_ ```🔞``` genderflux </sub> <br />
   <sub> TAKEN [⁠♡](https://github.com/y0urvalentine) **0**1/**0**2/23 </sub> <br />
   <sub> - - </sub> <br />
-  <sub> ‹⟨🍓🍰⟩› sbcl loml👅 </sub> <br />
+  <sub> ‹⟨🎀🎱⟩› sbcl loml👅 </sub> <br />
   <sub> everything should stay in fiction :) </sub> <br />
   <sub> #1 neopronouns hater </sub> <br />
   <sub> ```⚠️``` antis, minors, overall sensitive freaks dni yayyyy </sub>
