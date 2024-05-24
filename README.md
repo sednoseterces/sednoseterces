@@ -9,8 +9,8 @@
   everything should stay in fiction :) <br />
   block me if you wish <br />
   ```⚠️``` antis, minors *dni* <br />
-  (current friends are on thin ice😪)
-</div>
+  (current friends are on thin ice😪) <br />
+  mostly off tab, whisper to interact
 <div align="center">
    <img src="https://i.imgur.com/NXwGQoi.png" "width="100" height="100"> <br />
 <sub> ©;YisuoO, twt </sub> <br /> <br /> <br />
