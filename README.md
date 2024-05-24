@@ -3,7 +3,7 @@
 "width="150" height="150"> <br /> 
   
   ✩ **kal** / _giltz_ ```🔞``` genderflux <br />
-  they / them – *taken* [⁠♡](https://github.com/y0urvalentine) 01/02/23 <br />
+  they / them – *tak[⁠e](https://github.com/y0urvalentine)n* 01/02/23 <br />
   <sub> - - </sub> <br />
   ‹⟨🎱🎀⟩› sebaciel loml <br />
   everything should stay in fiction :) <br />
