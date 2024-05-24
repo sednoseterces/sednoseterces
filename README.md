@@ -4,9 +4,10 @@
   
   <sub> **KAL** / _GILTZ_ || 🔞 genderflux </sub> <br />
   <sub> TAKEN [⁠♡](https://github.com/y0urvalentine) **0**1/**0**2/23 </sub> <br />
-  <sub> ‹⟨🍓🍰⟩› antis, minors dni </sub> <br />
-  <sub> just dont be an ass :o) </sub>
-  
+  <sub> - - </sub> <br />
+  <sub> ‹⟨🍓🍰⟩› sbcl loml👅 </sub> <br />
+  <sub> everything should stay in fiction :) </sub> <br />
+  <sub> #1 neopronouns hater
 </div>
 <div align="center">
    <img src="https://i.imgur.com/NXwGQoi.png" "width="100" height="100">
