@@ -8,7 +8,7 @@
   ‹⟨🎱🎀⟩› sebaciel loml <br />
   everything should stay in fiction :) <br />
   #1 neopronouns hater <br />
-  ```⚠️``` antis, minors 𝘥𝘯𝘪
+  ```⚠️``` antis, minors *dni*
 </div>
 <div align="center">
    <img src="https://i.imgur.com/NXwGQoi.png" "width="100" height="100"> <br />
