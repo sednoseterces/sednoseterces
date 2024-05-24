@@ -12,4 +12,4 @@
 </div>
 <div align="center">
    <img src="https://i.imgur.com/NXwGQoi.png" "width="100" height="100"> <br />
-<sub> ©;YisuoO, twt </sub> <br /> <br /> <br />
+<sub> ©;YisuoO, twt‼️ </sub> <br /> <br /> <br />
