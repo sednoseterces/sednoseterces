@@ -11,4 +11,5 @@
   ```⚠️``` antis, minors, overall sensitive freaks dni yay
 </div>
 <div align="center">
-   <img src="https://i.imgur.com/NXwGQoi.png" "width="100" height="100"> <br /> <br />
+   <img src="https://i.imgur.com/NXwGQoi.png" "width="100" height="100"> <br />
+<sub> ©;YisuoO, twt </sub> <br /> <br /> <br />
