@@ -8,7 +8,7 @@
   ‹⟨🎱🎀⟩› sbcl loml👅 <br />
   everything should stay in fiction :) <br />
   #1 neopronouns hater <br />
-  ```⚠️``` antis, minors, overall sensitive freaks dni yay
+  ```⚠️``` antis, minors dni! block me i don't care
 </div>
 <div align="center">
    <img src="https://i.imgur.com/NXwGQoi.png" "width="100" height="100"> <br />
