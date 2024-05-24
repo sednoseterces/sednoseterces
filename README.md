@@ -1,5 +1,5 @@
 <div align="center"> <br /> <br /> <br />
-  <img src="https://github.com/sednoseterces/sednoseterces/assets/71658981/1aaf0d44-a183-493f-ae47-0bb604a842c2"
+  <img src="https://github.com/sednoseterces/sednoseterces/assets/71658981/9796bc26-1d47-444d-8d5f-9f4156355600"
 "width="150" height="150"> <br /> 
   
   ✩ **kal** / _giltz_ ```18+``` genderflux <br />
