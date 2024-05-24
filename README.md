@@ -1,6 +1,6 @@
 <div align="center"> <br /> <br />
   <img src="https://github.com/sednoseterces/sednoseterces/assets/71658981/1aaf0d44-a183-493f-ae47-0bb604a842c2"
-"width="100" height="100"> <br /> 
+"width="150" height="150"> <br /> 
   
   **KAL** / _GILTZ_ ```🔞``` genderflux <br />
   THEY / THEM – ***TAKEN*** [⁠♡](https://github.com/y0urvalentine) 01/02/23 <br />
