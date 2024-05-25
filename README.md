@@ -8,7 +8,7 @@
   <sub> - - </sub> <br />
   ‹⟨🎱🎀⟩› sebaciel loml <br />
   i don't condone nasty shit irl!! <br />
-  get help if you can't differ fiction from reality!<br />
+  leave fictional stuff strictly out of reality! <br />
   <sub> - - </sub> <br />
   ```⚠️``` antis, minors *dni* <br />
   (current friends are on thin ice😪) <br />
