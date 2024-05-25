@@ -7,8 +7,9 @@
   they / them – *tak[⁠e](https://github.com/y0urvalentine)n* 01/02/23 <br />
   <sub> - - </sub> <br />
   ‹⟨🎱🎀⟩› sebaciel loml <br />
-  everything should stay in fiction :) <br />
-  block me if you wish <br />
+  i don't condone nasty shit irl!! <br />
+  get help if you can't differ fiction from reality!<br />
+  <sub> - - </sub> <br />
   ```⚠️``` antis, minors *dni* <br />
   (current friends are on thin ice😪) <br />
   mostly off tab, whisper to interact
