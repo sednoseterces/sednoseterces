@@ -6,7 +6,7 @@
   ✩ **kal** / _giltz_ ```18+``` genderflux <br />
   they / them – *tak[⁠e](https://github.com/y0urvalentine)n* 01/02/23 <br />
   <sub> - - </sub> <br />
-  ‹⟨🎱🎀⟩› sebaciel loml <br />
+  ‹⟨🎱🎀⟩› sebaciel is my roman empire <br />
   i **don't** condone nasty shit irl!! <br />
   if you can't distinct fiction from reality, click off the internet <br />
   <sub> - - </sub> <br />
