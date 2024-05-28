@@ -1,5 +1,6 @@
 <div align="center"> <br /> <br /> <br />
-  <sub> IGNORE HOW SLOWLY THIS LOADS LOL </sub> </br />
+  —‎ ‎ ‎ ‎ just‎‎‎  ‎‎ ‎  suck‎ ‎ ‎ ‎ down‎ ‎ ‎ ‎ whatever‎ ‎ ‎ ‎ moral‎‎ ‎  ‎ dilemma‎ ‎ ‎ ‎ you‎ ‎ ‎ ‎ ever‎ ‎‎ ‎  have,‎ ‎‎ ‎  and, <br />
+  and‎ ‎ ‎ ‎ dress‎‎ ‎  ‎ it‎ ‎‎ ‎  up‎ ‎ ‎ ‎ — <br />
   <img src="https://github.com/sednoseterces/sednoseterces/assets/71658981/265474ac-c6a2-4714-a9b1-7bdda35292bf"
 "width="190" height="190"> <br /> 
   
