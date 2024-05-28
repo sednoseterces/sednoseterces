@@ -12,7 +12,8 @@
   <sub> - - </sub> <br />
   ```⚠️``` antis, minors *dni* <br />
   (current friends are on thin ice😪) <br />
-  mostly off tab, whisper to interact
+  mostly off tab, whisper to interact <br />
+  ```because some of y'all are chronically online, block me & move on rather than whine about it:^)```
 <div align="center">
    <img src="https://i.imgur.com/NXwGQoi.png" "width="150" height="150"> <br />
 <sub> ©;YisuoO, twt </sub> <br /> <br /> <br />
