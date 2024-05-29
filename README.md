@@ -3,8 +3,7 @@
   —‎ ‎ ‎ ‎ just‎‎‎  ‎‎ ‎  suck‎ ‎ ‎ ‎ down‎ ‎ ‎ ‎ whatever‎ ‎ ‎ ‎ moral‎‎ ‎  ‎ dilemma‎ ‎ ‎ ‎ you‎ ‎ ‎ ‎ ever‎ ‎‎ ‎  have,‎ ‎‎ ‎  and, <br />
   and‎ ‎ ‎ ‎ dress‎‎ ‎  ‎ it‎ ‎‎ ‎  up‎ ‎ ‎ ‎ — <br /> <br />
   <img src="https://github.com/sednoseterces/sednoseterces/assets/71658981/265474ac-c6a2-4714-a9b1-7bdda35292bf"
-"width="190" height="190"> <br />
-<img src="https://github.com/sednoseterces/sednoseterces/assets/71658981/0177ee57-065c-43bb-85cc-6ccebcded585"> <br />
+"width="190" height="190"> <br /> <br />
   
   ✩ **kal** / _giltz_ ```18+``` genderflux <br />
   they / them – *tak[⁠e](https://github.com/y0urvalentine)n* 01/02/23 <br />
