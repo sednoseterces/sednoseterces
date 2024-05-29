@@ -17,5 +17,5 @@
   mostly off tab (unless i'm with someone else), whisper to interact <br />
   ```since some of y'all are chronically online, block me & move on rather than whine in dms & party chat about me.```
 <div align="center">
-   <img src="https://i.imgur.com/NXwGQoi.png" "width="150" height="150"> <br />
+   <img src="https://github.com/sednoseterces/sednoseterces/assets/71658981/cc74ae86-ab72-4ed2-9de5-99b6f1376691" "width="150" height="150"> <br />
 <sub> ©;YisuoO, twt </sub> <br /> <br /> <br />
