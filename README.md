@@ -19,7 +19,7 @@
 <div align="center">
    <img src="https://github.com/sednoseterces/sednoseterces/assets/71658981/cc74ae86-ab72-4ed2-9de5-99b6f1376691" "width="150" height="150"> <br />
 <sub> ©;YisuoO, twt </sub> <br /> <br />
-<img src="https://github.com/sednoseterces/sednoseterces/assets/71658981/f9697c1b-8fe5-4536-9036-b0882f0add4d" "width="150" height="150">
+<img src="https://github.com/sednoseterces/sednoseterces/assets/71658981/f9697c1b-8fe5-4536-9036-b0882f0add4d" "width="150" height="150"> <br />
 <img src="https://github.com/sednoseterces/sednoseterces/assets/71658981/05ef2cf3-33de-49d6-86db-2cf82738e926" "width="100" height="100"> <br /> <br />
 
 
