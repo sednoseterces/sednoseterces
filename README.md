@@ -9,13 +9,12 @@
   they / them – *tak[⁠e](https://github.com/y0urvalentine)n* 01/02/23 <br />
   <sub> - - </sub> <br />
   ‹⟨🎱🎀⟩› sebaciel is my roman empire <br />
-  i **don't** condone nasty shit irl!! <br />
-  if you can't distinct fiction from reality, click off the internet <br />
+  i **don't** fucking condone ACTUAL illegal & nasty shit. <br />
+  if you can't distinct fiction from reality & you're sensitive because of some pixels, click off the internet <br />
   <sub> - - </sub> <br />
   ```⚠️``` antis, minors *dni* <br />
-  (current friends are on thin ice😪) <br />
+  i'm avoidant of my current minor friends <br />
   mostly off tab (unless i'm with someone else), whisper to interact <br />
-  ```since some of y'all are chronically online, block me & move on rather than whine in dms & party chat about me.```
 <div align="center">
    <img src="https://github.com/sednoseterces/sednoseterces/assets/71658981/cc74ae86-ab72-4ed2-9de5-99b6f1376691" "width="150" height="150"> <br />
 <sub> ©;YisuoO, twt </sub> <br /> <br />
