@@ -9,7 +9,7 @@
   they / them – *tak[⁠e](https://github.com/y0urvalentine)n* 01/02/23 <br />
   <sub> - - </sub> <br />
   ‹⟨🎱🎀⟩› sebaciel is my roman empire <br />
-  i **don't** fucking condone ACTUAL illegal & nasty shit. <br />
+  get a grip if you think darkshippers condone actual fucking crimes. we DO NOT. <br />
   if you can't distinct fiction from reality & you're sensitive because of some pixels, click off the internet <br />
   <sub> - - </sub> <br />
   ```⚠️``` antis, minors *dni* <br />
