@@ -13,7 +13,7 @@
   if you can't distinct fiction from reality & you're sensitive because of some pixels, click off the internet <br />
   <sub> - - </sub> <br />
   ```⚠️``` antis, minors *DNI* i'm not in the mood for babysitting y'all <br /> 
-  mostly off tab (unless i'm with someone else), whisper to interact <br />
+  mostly off tab, whisper to interact. i can't guarantee i'll respond <br />
 <div align="center">
    <img src="https://github.com/sednoseterces/sednoseterces/assets/71658981/cc74ae86-ab72-4ed2-9de5-99b6f1376691" "width="150" height="150"> <br />
 <sub> ©;YisuoO, twt </sub> <br /> <br />
