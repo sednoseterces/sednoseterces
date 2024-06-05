@@ -8,11 +8,11 @@
   ✩ **kal** / _giltz_ ```18+``` genderflux <br />
   they / them – *tak⁠en* 01/02/23 <br />
   <sub> - - </sub> <br />
-  ‹⟨🎱🎀⟩› sebaciel is my roman empire <br />
+  ‹⟨🎱🎀⟩› i'm so normal about sbcl <br />
   get a grip if you think darkshippers condone actual fucking crimes. we DO NOT. <br />
   if you can't distinct fiction from reality & you're sensitive because of some pixels, click off the internet <br />
   <sub> - - </sub> <br />
-  ```⚠️``` antis, minors *DNI* i'm not in the mood for babysitting y'all <br /> 
+  ```⚠️``` antis, minors *DNI* i'm not in the mood to babysit you. <br /> 
   mostly off tab/making skins, whisper to interact. i can't guarantee i'll respond <br />
 <div align="center">
    <img src="https://github.com/sednoseterces/sednoseterces/assets/71658981/cc74ae86-ab72-4ed2-9de5-99b6f1376691" "width="150" height="150"> <br />
