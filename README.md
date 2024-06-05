@@ -2,7 +2,7 @@
   <img src="https://github.com/sednoseterces/sednoseterces/assets/71658981/8cf45e2c-4dee-4de8-8d67-558a5f18fe46"> <br />
   —‎ ‎ ‎ ‎ just‎‎‎  ‎‎ ‎  suck‎ ‎ ‎ ‎ down‎ ‎ ‎ ‎ whatever‎ ‎ ‎ ‎ moral‎‎ ‎  ‎ dilemma‎ ‎ ‎ ‎ you‎ ‎ ‎ ‎ ever‎ ‎‎ ‎  have,‎ ‎‎ ‎  and, <br />
   and‎ ‎ ‎ ‎ dress‎‎ ‎  ‎ it‎ ‎‎ ‎  up‎ ‎ ‎ ‎ — <br /> <br />
-  <img src="https://github.com/sednoseterces/sednoseterces/assets/71658981/7adb9aed-3a9b-48c4-a6e4-555bf9424564"
+  <img src="https://github.com/sednoseterces/sednoseterces/assets/71658981/f9443f87-643a-4b55-8fa4-56bfdeed3e1e"
 "width="160" height="160"> <br /> <br />
   
   ✩ **kal** / _giltz_ ```18+``` genderflux <br />
