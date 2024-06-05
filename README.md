@@ -6,7 +6,7 @@
 "width="190" height="190"> <br /> <br />
   
   ✩ **kal** / _giltz_ ```18+``` genderflux <br />
-  they / them – *tak[⁠e](https://github.com/y0urvalentine)n* 01/02/23 <br />
+  they / them – *tak⁠en* 01/02/23 <br />
   <sub> - - </sub> <br />
   ‹⟨🎱🎀⟩› sebaciel is my roman empire <br />
   get a grip if you think darkshippers condone actual fucking crimes. we DO NOT. <br />
