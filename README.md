@@ -10,7 +10,7 @@
   <sub> - - </sub> <br />
   ‹⟨🎱🎀⟩› i'm so normal about sbcl <br />
   get a grip if you think darkshippers condone actual fucking crimes. we DO NOT. <br />
-  if you can't distinct fiction from reality & you're sensitive because of some pixels, click off the internet <br />
+  if you can't distinct fiction from reality & you're sensitive because of some pixels, click off the internet and stop bothering me seriously <br />
   <sub> - - </sub> <br />
   ```⚠️``` antis, minors *DNI* i'm not in the mood to babysit you. <br /> 
   mostly off tab/making skins, whisper to interact. i can't guarantee i'll respond <br />
@@ -21,5 +21,3 @@
 <img src="https://github.com/sednoseterces/sednoseterces/assets/71658981/f9697c1b-8fe5-4536-9036-b0882f0add4d" "width="150" height="150"> <br />
 <img src="https://github.com/sednoseterces/sednoseterces/assets/71658981/05ef2cf3-33de-49d6-86db-2cf82738e926" "width="100" height="100"> <br />
 <img src="https://github.com/sednoseterces/sednoseterces/assets/71658981/8b80f702-d9c0-4030-9aa6-a0f1842ed74e" "width="150" height="150"> <br /> <br /> <br />
-
-
