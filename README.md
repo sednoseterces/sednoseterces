@@ -9,8 +9,8 @@
   they / them – *tak⁠en* 01/02/23 <br />
   <sub> - - </sub> <br />
   ‹⟨⚰️🕊️⟩› crazy about steel bank common lisp <br />
-  fiction ≠ reality! curve this in your pea-sized brains! <br />
-  if you can't distinct fiction from reality & you're sensitive because of some pixels, click off the internet & stop bothering me x) <br />
+  just because someone likes dark media and taboo ships, that doesn't mean they condone that shit in real life. <br />
+  if you can't distinct fiction from reality & you're sensitive because of some pixels, click off the internet & stop getting on my cock about it x) <br />
   <sub> - - </sub> <br />
   ```⚠️``` antis, minors *DNI* i'm not in the mood to babysit you. <br /> 
   mostly off tab/making skins, whisper to interact. i can't guarantee i'll respond <br />
