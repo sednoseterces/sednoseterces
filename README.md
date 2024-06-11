@@ -8,9 +8,9 @@
   ✩ **kal** / _giltz_ ```18+``` genderflux <br />
   they / them – *tak⁠en* 01/02/23 <br />
   <sub> - - </sub> <br />
-  ‹⟨🎱🎀⟩› i'm so normal about sbcl <br />
-  get a grip if you think darkshippers condone actual fucking crimes. we DO NOT. <br />
-  if you can't distinct fiction from reality & you're sensitive because of some pixels, click off the internet and stop bothering me seriously <br />
+  ‹⟨⚰️🕊️⟩› <br />
+  fiction ≠ reality! curve this in your pea-sided brains! <br />
+  if you can't distinct fiction from reality & you're sensitive because of some pixels, click off the internet & stop bothering me x) <br />
   <sub> - - </sub> <br />
   ```⚠️``` antis, minors *DNI* i'm not in the mood to babysit you. <br /> 
   mostly off tab/making skins, whisper to interact. i can't guarantee i'll respond <br />
