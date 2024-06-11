@@ -8,8 +8,8 @@
   ✩ **kal** / _giltz_ ```18+``` genderflux <br />
   they / them – *tak⁠en* 01/02/23 <br />
   <sub> - - </sub> <br />
-  ‹⟨⚰️🕊️⟩› <br />
-  fiction ≠ reality! curve this in your pea-sided brains! <br />
+  ‹⟨⚰️🕊️⟩› crazy about steel bank common lisp <br />
+  fiction ≠ reality! curve this in your pea-sized brains! <br />
   if you can't distinct fiction from reality & you're sensitive because of some pixels, click off the internet & stop bothering me x) <br />
   <sub> - - </sub> <br />
   ```⚠️``` antis, minors *DNI* i'm not in the mood to babysit you. <br /> 
