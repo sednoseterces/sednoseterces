@@ -10,7 +10,7 @@
   <sub> - - </sub> <br />
   ‹⟨⚰️🕊️⟩› crazy about steel bank common lisp <br />
   just because someone likes dark media and taboo ships, that doesn't mean they condone that shit in real life. <br />
-  if you can't distinct fiction from reality & you're sensitive because of some pixels, click off the internet & stop getting on my cock about it x) <br />
+  if you can't distinct fiction from reality & you're sensitive because of some pixels, click off the internet & stop bothering me about it. i'm done DONE dealing with harassment because of my coping mechanism. there's a hide button for a reason🙏<br />
   <sub> - - </sub> <br />
   ```⚠️``` antis, minors *DNI* i'm not in the mood to babysit you. <br /> 
   mostly off tab/making skins, whisper to interact. i can't guarantee i'll respond <br />
