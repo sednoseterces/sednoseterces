@@ -4,7 +4,7 @@
   「 i'm tired of this human duet — no civilizing hides <br />
   our animal impulses. 」 <br /> <br />
   <img src=https://github.com/sednoseterces/sednoseterces/assets/71658981/08ddaafe-e9df-4359-800f-7bf5d087091f"
-"width="160" height="160"> <br /> <br />
+"width="170" height="170"> <br /> <br />
   
   ✩ **kal** / _giltz_ ```18+``` genderflux <br />
   they / them – *tak⁠en* 01/02/23 <br />
