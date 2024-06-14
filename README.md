@@ -9,7 +9,7 @@
   ✩ **kal** / _giltz_ ```18+``` genderflux <br />
   they / them – *tak⁠en* 01/02/23 <br />
   <sub> - - </sub> <br />
-  ⟨⚰️🕊️⟩ <br />
+  DƎAD ⟨⚰️🕊️⟩ DOVƎ <br />
   taboo ships are cool as long as they're strictly FICTIONAL :3 <br />
   if you can't distinct fiction from reality & you're sensitive because of some pixels, click off the internet pal <br />
   feel free to block me; people cope differently with trauma. no one said it's healthy. leave me alone. <br />
