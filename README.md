@@ -16,4 +16,4 @@
   ```⚠️``` antis, minors *DNI* i hide & mute freely. expect perma block if you're annoying (like 98% of you) <br /> 
   mostly off tab/making skins, whisper to interact. i can't guarantee i'll respond <br />
 <div align="center">
-   <img src="https://github.com/sednoseterces/sednoseterces/assets/71658981/192254e5-1314-47cf-bf1b-ad70e7ae50d1" "width="150" height="150"> <br />
+   <img src="https://github.com/sednoseterces/sednoseterces/assets/71658981/192254e5-1314-47cf-bf1b-ad70e7ae50d1" "width="170" height="170"> <br />
