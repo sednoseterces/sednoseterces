@@ -9,9 +9,10 @@
   ✩ **kal** / _giltz_ ```18+``` genderflux <br />
   they / them – *tak⁠en* 01/02/23 <br />
   <sub> - - </sub> <br />
-  ‹⟨⚰️🕊️⟩› crazy about steel bank common lisp <br />
-  just because someone likes dark media and taboo ships, that doesn't mean they condone that shit in real life. <br />
-  if you can't distinct fiction from reality & you're sensitive because of some pixels, click off the internet & stop bothering me about it. i'm done DONE dealing with harassment because of my coping mechanism. there's a hide button for a reason🙏<br />
+  ⟨⚰️🕊️⟩ <br />
+  taboo ships are cool as long as they're strictly FICTIONAL :3 <br />
+  if you can't distinct fiction from reality & you're sensitive because of some pixels, click off the internet pal <br />
+  people cope differently with trauma. womp womp <br />
   <sub> - - </sub> <br />
   ```⚠️``` antis, minors *DNI* i hide & mute freely. expect perma block if you're annoying (like 98% of you) <br /> 
   mostly off tab/making skins, whisper to interact. i can't guarantee i'll respond <br />
