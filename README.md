@@ -1,8 +1,8 @@
 <div align="center"> <br /> <br /> <br />
   <img src="https://github.com/sednoseterces/sednoseterces/assets/71658981/97db3668-110e-47a9-bd8d-d87a57dbfd08" 
 "width="150" height="150"> <br />
-  —‎ ‎ ‎ ‎ just‎‎‎  ‎‎ ‎  suck‎ ‎ ‎ ‎ down‎ ‎ ‎ ‎ whatever‎ ‎ ‎ ‎ moral‎‎ ‎  ‎ dilemma‎ ‎ ‎ ‎ you‎ ‎ ‎ ‎ ever‎ ‎‎ ‎  have,‎ ‎‎ ‎  and, <br />
-  and‎ ‎ ‎ ‎ dress‎‎ ‎  ‎ it‎ ‎‎ ‎  up‎ ‎ ‎ ‎ — <br /> <br />
+  「 i'm tired of this human duet — no civilizing hides <br />
+  our animal impulses 」 <br /> <br />
   <img src=https://github.com/sednoseterces/sednoseterces/assets/71658981/08ddaafe-e9df-4359-800f-7bf5d087091f"
 "width="160" height="160"> <br /> <br />
   
