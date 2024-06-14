@@ -6,7 +6,7 @@
   <img src=https://github.com/sednoseterces/sednoseterces/assets/71658981/08ddaafe-e9df-4359-800f-7bf5d087091f"
 "width="170" height="170"> <br /> <br />
   
-  ✩ **kal** / _giltz_ ```18+``` genderflux <br />
+  ✩ **kal** / _giltz_ ```adult``` genderflux <br />
   they / them – *tak⁠en* 01/02/23 <br />
   <sub> - - </sub> <br />
   DƎAD ⟨⚰️🕊️⟩ DOVƎ <br />
