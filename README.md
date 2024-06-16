@@ -3,7 +3,7 @@
 "width="150" height="150"> <br />
   「 i'm tired of this human duet — no civilizing hides <br />
   our animal impulses. 」 <br /> <br />
-  <img src=https://github.com/sednoseterces/sednoseterces/assets/71658981/08ddaafe-e9df-4359-800f-7bf5d087091f"
+  <img src="https://github.com/sednoseterces/sednoseterces/assets/71658981/eaff11ee-c04f-4173-8265-d0e7ffddef8e"
 "width="170" height="170"> <br /> <br />
   
   ✩ **kal** / _giltz_ ```adult``` genderflux <br />
