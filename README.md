@@ -12,7 +12,8 @@
   DƎAD ⟨⚰️🕊️⟩ DOVƎ <br />
   taboo ships are cool as long as they're strictly FICTIONAL :3 <br />
   if you can't distinct fiction from reality & you're sensitive because of some pixels, click off the internet pal <br />
-  liking an abusive ship doesn't make you an abuser. liking an age gap ship doesn't make you a ped0. it's FICTION. be logical. <br />
+  liking an abusive ship doesn't make you an abuser. liking an age gap ship doesn't make you a p*do. it's FICTION. be logical. <br />
+  if you like them to simply get off to them, you're weird and you need help! coping is what i do with them. it's different. it should be none's business of how people cope with their trauma. <br />
   <sub> - - </sub> <br />
   ```⚠️``` antis, minors *DNI* i hide & mute freely. expect perma block if you're annoying (like 98% of you) <br /> 
   mostly off tab/making skins, whisper to interact. i can't guarantee i'll respond <br />
