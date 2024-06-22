@@ -7,7 +7,7 @@
 "width="200" height="200"> <br /> <br />
   
   ✩ **kal** / _giltz_ ```adult``` genderflux <br />
-  they / them – *tak⁠en* <br />
+  they / them – *tak⁠en* ⁰¹·⁰²·²³ <br />
   <sub> - - </sub> <br />
   DƎAD ⟨⚰️🕊️⟩ DOVƎ <br />
   taboo ships are cool as long as they're strictly FICTIONAL :3 <br />
