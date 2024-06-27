@@ -6,7 +6,7 @@
   <img src="https://github.com/sednoseterces/sednoseterces/assets/71658981/fd295528-152d-4904-accb-278d730ed94c"
 "width="200" height="200"> <br /> <br />
   
-  ✩ **kal** / _giltz_ ```adult``` genderflux <br />
+  ✩ **Kal** / _Giltz_ ```adult``` genderflux <br />
   mirrored prns (NO neos) – TAKEN !!! ⁰¹·⁰²·²³ <br />
   <sub> - - </sub> <br />
   DƎAD ⟨⚰️🕊️⟩ DOVƎ <br />
