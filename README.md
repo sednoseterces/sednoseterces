@@ -13,7 +13,7 @@
   taboo ships are cool as long as they're strictly FICTIONAL :3 <br />
   if you can't distinct fiction from reality & you're sensitive because of some pixels, click off the internet pal <br />
   liking an abusive ship doesn't make you an abuser. liking an age gap ship doesn't make you a p*do. it's FICTION. be logical. <br />
-  actively engaging in them is different than coping USING them. please be reasonable and stop assuming everyone who's into dark fiction is automatically an awful person. <br />
+  actively engaging in them is different than coping USING them. please be reasonable & stop assuming everyone who's into dark fiction is automatically an awful person. <br />
   <sub> - - </sub> <br />
   ```⚠️``` antis, minors *DNI* i hide & mute freely <br /> 
   w2i, switching between tabs. i rarely interact first <br />
