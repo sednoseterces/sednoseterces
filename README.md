@@ -1,5 +1,5 @@
 <div align="center"> <br /> <br /> <br />
-  <img src="!https://github.com/sednoseterces/sednoseterces/assets/71658981/390302e2-10c0-4bea-9c35-6d5fadc15753" 
+  <img src="https://github.com/sednoseterces/sednoseterces/assets/71658981/390302e2-10c0-4bea-9c35-6d5fadc15753" 
 "width="150" height="150"> <br />
   「 i'm tired of this human duet — no civilizing hides <br />
   our animal impulses. 」 <br /> <br />
