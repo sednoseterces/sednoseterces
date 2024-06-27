@@ -1,8 +1,9 @@
 <div align="center"> <br /> <br /> <br />
   <img src="https://github.com/sednoseterces/sednoseterces/assets/71658981/390302e2-10c0-4bea-9c35-6d5fadc15753" 
-"width="150" height="150"> <br />
-  「 i'm tired of this human duet — no civilizing hides <br />
-  our animal impulses. 」 <br /> <br />
+"width="150" height="150"> <br /> <br />
+    Here comes the sun, doo-doo-doo-doo <br />
+     Here comes the sun, and I say <br />
+     It's alright! <br /> <br />
   <img src="https://github.com/sednoseterces/sednoseterces/assets/71658981/fd295528-152d-4904-accb-278d730ed94c"
 "width="200" height="200"> <br /> <br />
   
