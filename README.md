@@ -1,9 +1,9 @@
 <div align="center"> <br /> <br /> <br />
-  <img src="https://github.com/sednoseterces/sednoseterces/assets/71658981/97db3668-110e-47a9-bd8d-d87a57dbfd08" 
+  <img src="!https://github.com/sednoseterces/sednoseterces/assets/71658981/390302e2-10c0-4bea-9c35-6d5fadc15753" 
 "width="150" height="150"> <br />
   「 i'm tired of this human duet — no civilizing hides <br />
   our animal impulses. 」 <br /> <br />
-  <img src="https://github.com/sednoseterces/sednoseterces/assets/71658981/eaff11ee-c04f-4173-8265-d0e7ffddef8e"
+  <img src="https://github.com/sednoseterces/sednoseterces/assets/71658981/fd295528-152d-4904-accb-278d730ed94c"
 "width="200" height="200"> <br /> <br />
   
   ✩ **kal** / _giltz_ ```adult``` genderflux <br />
@@ -18,4 +18,4 @@
   ```⚠️``` antis, minors *DNI* i hide & mute freely <br /> 
   w2i, switching between tabs. i rarely interact first <br />
 <div align="center">
-   <img src="https://github.com/sednoseterces/sednoseterces/assets/71658981/192254e5-1314-47cf-bf1b-ad70e7ae50d1" "width="200" height="200"> <br /> <br / <br />
+   <img src="https://github.com/sednoseterces/sednoseterces/assets/71658981/62953b18-44da-4b7e-933d-ca9062b14064" "width="200" height="200"> <br /> <br / <br />
