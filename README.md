@@ -1,5 +1,5 @@
 <div align="center"> <br /> <br /> <br />
-  <img src="https://github.com/sednoseterces/sednoseterces/assets/71658981/390302e2-10c0-4bea-9c35-6d5fadc15753" 
+  <img src="https://github.com/sednoseterces/sednoseterces/assets/71658981/af956a91-18e5-4189-90de-4b5bb4e20f9e" 
 "width="150" height="150"> <br /> <br />
     “ She taught me to seek truth over lies, justice over injustice, <br />
   righteousness over the rewards of evildoers. ” <br /> <br />
