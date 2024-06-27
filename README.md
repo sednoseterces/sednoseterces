@@ -15,7 +15,7 @@
   liking an abusive ship doesn't make you an abuser. liking an age gap ship doesn't make you a p*do. it's FICTION. be logical. <br />
   actively engaging in them is different than coping USING them. please be reasonable & stop assuming everyone who's into dark fiction is automatically an awful person. <br />
   <sub> - - </sub> <br />
-  ```⚠️``` mostly on the 18+ english server; if you see me in any safe server & you're a minor do not interact. <br />
+  ```⚠️``` mostly on the 18+ server; if you see me in any safe server & you're a minor do not interact. <br />
   i'm idle & i'm not looking to make friends. <br /> 
   w2i if you got issues with me. i won't waste my breath if you bring it to public👍 (antis i'm eyeing you) <br />
 <div align="center">
