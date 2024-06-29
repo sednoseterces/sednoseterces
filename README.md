@@ -10,10 +10,8 @@
   mirrored prns (NO neos) – TAKEN !!! ⁰¹·⁰²·²³ <br />
   <sub> - - </sub> <br />
   DƎAD ⟨⚰️🕊️⟩ DOVƎ <br />
-  taboo ships are cool as long as they're strictly FICTIONAL :3 <br />
-  if you can't distinct fiction from reality & you're sensitive because of some pixels, click off the internet pal <br />
-  liking an abusive ship doesn't make you an abuser. liking an age gap ship doesn't make you a p*do. it's FICTION. be logical. <br />
-  actively engaging in them is different than coping USING them. please be reasonable & stop assuming everyone who's into dark fiction is automatically an awful person. <br />
+  i'm a profic/proshipper & i believe people should draw whatever they want, as long as they don't act on it irl! <br />
+  fiction ≠ reality btw. feel free to block me, your arguments won't change my opinion <br />
   <sub> - - </sub> <br />
   ```⚠️``` mostly on the 18+ server; if you see me in any safe server & you're a minor **do not interact**. <br />
   i'm usually idle & i'm not looking to make friends. <br /> 
