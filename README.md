@@ -9,7 +9,7 @@
   ✩ **Kal** / _Ciel_ + others ```adult``` genderflux <br />
   mirrored prns (NO neos) – TAKEN !!! ⁰¹·⁰²·²³ <br />
   <sub> - - </sub> <br />
-  DƎAD ⟨⚰️🕊️⟩ DOVƎ <br />
+  (🍋🌈) / (🍓🍰) <br />
   i'm a profic/proshipper & i believe people should draw whatever they want, as long as they don't act on it irl! <br />
   fiction ≠ reality btw. feel free to block me, your arguments won't change my opinion <br />
   <sub> - - </sub> <br />
