@@ -7,12 +7,12 @@
 "width="200" height="200"> <br /> <br />
   
   ✩ **Kal** / _Ciel_ + others ```adult``` genderflux <br />
-  mirrored prns (NO neos) – TAKEN !!! ⁰¹·⁰²·²³ <br />
-  <sub> - - </sub> <br />
+  mirrored prns (NO neos) – taken. 01/02/23 <br />
+  <sub> • • • </sub> <br />
   (🍋🌈) / (🍓🍰) <br />
   i'm a profic/proshipper & i believe people should draw whatever they want, as long as they don't act on it irl! <br />
   fiction ≠ reality btw. feel free to block me, your arguments won't change my opinion <br />
-  <sub> - - </sub> <br />
+  <sub> • • • </sub> <br />
   ```⚠️``` mostly on the 18+ server; if you see me in any safe server & you're a minor **do not interact**. <br />
   i'm usually idle & i'm not looking to make friends. <br /> 
   w2i if you got issues with me. i won't waste my breath if you bring it to public👍 (antis i'm eyeing you) <br />
